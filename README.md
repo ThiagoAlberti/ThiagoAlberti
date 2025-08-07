@@ -26,7 +26,7 @@ Sou estudante de **Análise e Desenvolvimento de Sistemas** e estou em busca de 
 
 - 📌 **GitHub:** [ThiagoAlberti](https://github.com/ThiagoAlberti)  
 - 📧 **E-mail:** thii_hr@hotmail.com  
-- 🌐 **LinkedIn:** [Seu Perfil](https://www.linkedin.com/in/thiago-alberti-362b061b9/)
+- 🌐 **LinkedIn:** [Linkedin](https://www.linkedin.com/in/thiago-alberti-362b061b9/)
 
 ---
 
